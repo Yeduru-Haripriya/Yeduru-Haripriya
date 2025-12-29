@@ -17,7 +17,7 @@
   📧 <a href="mailto:yeduruharipriya@gmail.com">yeduruharipriya@gmail.com</a>
   &nbsp; | &nbsp;
   🔗 <a href="https://www.linkedin.com/in/yeduru-haripriya/" target="_blank">
-    LinkedIn
+    Yeduru Haripriya (LinkedIn)
   </a>
 </p>
 
